@@ -1,2 +1,2 @@
 # WXMOD3D
-Astroengineering &amp; Geoengineering History -1700&lt;>2100+
+Astro Geo Macro Engineering History -1600-1700-2100+
